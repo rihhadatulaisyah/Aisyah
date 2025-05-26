@@ -1,0 +1,2 @@
+# Aisyah
+Diagnosa Laptop
